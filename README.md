@@ -13,7 +13,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
-* Absolutely anything!(Change)
+* Something interesting about me is I tranferrred from a different school
+* Ask Mr. Vu anything: How much work is given in this class per week
+* List your sports and extracurriculars you participate in: Badminton, MERITS, Volunteering
